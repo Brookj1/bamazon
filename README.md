@@ -16,6 +16,8 @@ Key functionalities:
 
 Link to demo video: 
 
+https://drive.google.com/file/d/1AiIqDtFEl-o48EcZ0VULMXtS35SwDy4K/view
+
 
 
 
